@@ -1,0 +1,1 @@
+"# Detyre-Kursi" 
